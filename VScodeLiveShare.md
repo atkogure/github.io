@@ -3,6 +3,6 @@
 # っっっっっb 
 # っっっっっっっっm
 
-![画像](https://techmode.co.jp/images/EventAttendeeCode.png)
+![画像](https://techmode.co.jp/images/kogure.jpg)
 <br>
 <br><br><br>
